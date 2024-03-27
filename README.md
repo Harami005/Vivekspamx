@@ -1,5 +1,5 @@
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
-<h3><img  style="align-item" :"center" src="https://telegra.ph/file/2c528d33464fc9514f3e9.jpg" width="80px" height="70%">
+<h3><img  style="align-item" :"center" src="https://telegra.ph/file/83db3b7786ffa9948962b.jpg" width="80px" height="70%">
    <img src="https://readme-typing-svg.herokuapp.com?color=00BFFF&width=620&lines=👉👌=💦🥵+💥+𝐇𝙴𝚈+𝐓𝙷𝙴𝚁𝙴+𝐓𝙷𝙸𝚂+𝐈𝚜+𝐕𝐈𝐏😎+𝐕𝐈𝐕𝐄𝐊+𝐗𝐃+🖤+🥀"></b></h3>
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 
