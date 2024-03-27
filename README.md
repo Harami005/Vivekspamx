@@ -6,7 +6,7 @@
 <h1 align="center"><b>[⚡] 𝙏𝙝𝙚𓍢ִ໋🍃˹🇸нιzυ˼✶⚡𝘽𝙤𝙩𝙨 [⚡]</b></h1>
 <h4 align="center"> 𝗔 𝗣𝗢𝗪𝗘𝗥𝗙𝗨𝗟𝗟 𝗦𝗣𝗔𝗠𝗕𝗢𝗧𝗦</h4>
 
-<p align="center"><a href="https://t.me/JARVIS_V2"><img src="https://telegra.ph/file/83db3b7786ffa9948962b.jpg" width="400"></a></p>
+<p align="center"><a href="https://t.me/JARVIS_V2"><img src="https://telegra.ph/file/2e7cb4ed65bca4e8fd77c.jpg" width="400"></a></p>
 
 
 ``⭐️ Thanks to everyone for using this op JARVIS BOTS. That is the greatest pleasure we have !``
