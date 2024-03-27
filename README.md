@@ -3,7 +3,7 @@
    <img src="https://readme-typing-svg.herokuapp.com?color=00BFFF&width=620&lines=👉👌=💦🥵+💥+𝐇𝙴𝚈+𝐓𝙷𝙴𝚁𝙴+𝐓𝙷𝙸𝚂+𝐈𝚜+𝐕𝐈𝐏😎+𝐕𝐈𝐕𝐄𝐊+𝐗𝐃+🖤+🥀"></b></h3>
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 
-<h1 align="center"><b>[⚡] 𝙏𝙝𝙚𓍢ִ໋🍃˹🇸нιzυ˼✶⚡𝘽𝙤𝙩𝙨 [⚡]</b></h1>
+<h1 align="center"><b>[⚡] 𝗧𝗛𝗘𓍢ִ໋🍃˹🇸нιzυ˼✶⚡𝗕𝗢𝗧𝗦 [⚡]</b></h1>
 <h4 align="center"> 𝗔 𝗣𝗢𝗪𝗘𝗥𝗙𝗨𝗟𝗟 𝗦𝗣𝗔𝗠𝗕𝗢𝗧𝗦</h4>
 
 <p align="center"><a href="https://t.me/JARVIS_V2"><img src="https://telegra.ph/file/2e7cb4ed65bca4e8fd77c.jpg" width="400"></a></p>
